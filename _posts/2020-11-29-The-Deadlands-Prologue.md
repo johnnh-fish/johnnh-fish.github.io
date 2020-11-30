@@ -6,7 +6,7 @@ date: 2020 11 29
 
 Prologue
 
-	“We’re nearly there!” I yelled at my fellow explorers. Coal, who was the expert annoying miner, spent the last ten minutes complaining about how tired he was. Feather, the arrogant archer was shooting pigs as we walked. Dust, the redstone genius, was fidgeting with repeaters and stuff. I am the OP most awesome and handsome swordsman, ever (Cue the dramatic music). I am the one and only, Sword (Cue the explosions and the fireworks). Coal had dirty blue jeans, and a dirty shirt. He wore a diamond helmet. Feather, was a golden godlike figure, with a laurel wreath and white and gold robes. He wore no armor. Dust wore an army jacket and camo pants. I wear a tank top and shorts, plus some armor. (Full enchanted diamond)
+“We’re nearly there!” I yelled at my fellow explorers. Coal, who was the expert annoying miner, spent the last ten minutes complaining about how tired he was. Feather, the arrogant archer was shooting pigs as we walked. Dust, the redstone genius, was fidgeting with repeaters and stuff. I am the OP most awesome and handsome swordsman, ever (Cue the dramatic music). I am the one and only, Sword (Cue the explosions and the fireworks). Coal had dirty blue jeans, and a dirty shirt. He wore a diamond helmet. Feather, was a golden godlike figure, with a laurel wreath and white and gold robes. He wore no armor. Dust wore an army jacket and camo pants. I wear a tank top and shorts, plus some armor. (Full enchanted diamond)
 	I saw the towering structures of rocks and dirt and lava. The pictures in the books never put this to justice. Coal started to whine:
 “Can we please set up camp and have some rest now, I’ll give you a diamond!”
 “Shut up!” Dust barked
