@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "The Deadlands, Prologue"
-date: 2020 11 29
+date: 2020-11-29
 ---
 
 Prologue
